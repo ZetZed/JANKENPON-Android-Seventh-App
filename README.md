@@ -1,4 +1,4 @@
-# JANKENPON-Android-Seventh-App
+# JANKENPON-Android-Seventh-App 👊🖐️✌️
 
 Olá a todos!👋  
 
